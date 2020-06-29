@@ -7,6 +7,7 @@
 ![Android Mobile – 8](https://user-images.githubusercontent.com/54563422/86010219-0ca03080-ba56-11ea-8b78-4f0eb158cac1.jpg)
 ![Android Mobile – 3](https://user-images.githubusercontent.com/54563422/86010423-5b4dca80-ba56-11ea-9337-ecaea8330895.jpg)
 ![Android Mobile – 5](https://user-images.githubusercontent.com/54563422/86010608-9bad4880-ba56-11ea-935f-2593358bea99.jpg)
+![Android Mobile – 10](https://user-images.githubusercontent.com/54563422/86010799-dca55d00-ba56-11ea-822c-5818244f7025.jpg)
 
 ![report_page-0001](https://user-images.githubusercontent.com/54563422/81254659-ba9aea00-9066-11ea-93df-b8c4f9163281.jpg)
 
