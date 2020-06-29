@@ -9,7 +9,6 @@
 ![Android Mobile – 5](https://user-images.githubusercontent.com/54563422/86010608-9bad4880-ba56-11ea-935f-2593358bea99.jpg)
 ![Android Mobile – 2](https://user-images.githubusercontent.com/54563422/86011128-4887c580-ba57-11ea-95f0-bc183b8ce00c.jpg)
 ![Android Mobile – 10](https://user-images.githubusercontent.com/54563422/86010799-dca55d00-ba56-11ea-822c-5818244f7025.jpg)
-![Android Mobile – 7](https://user-images.githubusercontent.com/54563422/86011384-9270ab80-ba57-11ea-9815-f2817f08be7b.jpg)
 
 ![웹 1920 – 1](https://user-images.githubusercontent.com/54563422/86008566-ed080880-ba53-11ea-895f-0a235303c59e.jpg)
 
